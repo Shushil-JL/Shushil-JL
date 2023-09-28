@@ -5,7 +5,7 @@ I'm a passionate full stack developer with expertise in a variety of technologie
 - 💼 Full Stack Developer
 - 🌐 Open-source enthusiast
 - 🚀 Always eager to learn and explore new technologies
-- 📫 You can reach me at: shushilchaudhary444@gmail.com
+- 📫 You can reach me at: shushilchaudhary444@gmail.com or bazzrangi.ak@gmail.com
 -
 
 
